@@ -1,3 +1,0 @@
-# Practice
-
-Writed by GYC
